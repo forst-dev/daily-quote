@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Continuous effort - not strength or intelligence - is the key to unlocking our potential.
+> The only thing worse than being blind is having sight but no vision.
 >
-> — Winston Churchill
+> — Helen Keller
