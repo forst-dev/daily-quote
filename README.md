@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The only thing worse than being blind is having sight but no vision.
+> You are always your own best guru, your own best teacher, the answers are always inside you.
 >
-> — Helen Keller
+> — Sathya Sai Baba
