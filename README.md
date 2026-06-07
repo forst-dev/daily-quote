@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The man who asks a question is a fool for a minute, the man who does not ask is a fool for life.
+> A lot of people have gone further than they thought they could because someone else thought they could.
 >
-> — Confucius
+> — Zig Ziglar
