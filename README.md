@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Given the choice between the experience of pain and nothing, I would choose pain.
+> Short cuts make long delays.
 >
-> — William Faulkner
+> — J.R.R. Tolkien
