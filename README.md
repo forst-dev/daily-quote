@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Short cuts make long delays.
+> Every man desires to live long, but no man wishes to be old.
 >
-> — J.R.R. Tolkien
+> — Jonathan Swift
