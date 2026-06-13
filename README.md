@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The future depends on what you do today.
+> You can't build a reputation on what you are going to do.
 >
-> — Mahatma Gandhi
+> — Henry Ford
