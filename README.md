@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You can't build a reputation on what you are going to do.
+> Anger begins with folly, and ends with repentance.
 >
-> — Henry Ford
+> — Beverly Sills
