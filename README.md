@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Anger begins with folly, and ends with repentance.
+> Your dream has to be bigger than your fear.
 >
-> — Beverly Sills
+> — Steve Harvey
