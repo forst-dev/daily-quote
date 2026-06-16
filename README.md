@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Your dream has to be bigger than your fear.
+> The road to success is always under construction..
 >
-> — Steve Harvey
+> — Lily Tomlin
