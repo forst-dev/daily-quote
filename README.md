@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Never whine, never complain, never try to justify yourself.
+> All we have to decide is what to do with the time that is given to us.
 >
-> — Robert Greene
+> — J.R.R. Tolkien
