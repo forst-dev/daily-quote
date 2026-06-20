@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> All we have to decide is what to do with the time that is given to us.
+> Let us rather run the risk of wearing out than rusting out.
 >
-> — J.R.R. Tolkien
+> — Theodore Roosevelt
