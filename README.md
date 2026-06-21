@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Let us rather run the risk of wearing out than rusting out.
+> Only when you can be extremely pliable and soft can you be extremely hard and strong.
 >
-> — Theodore Roosevelt
+> — Zen Proverb
