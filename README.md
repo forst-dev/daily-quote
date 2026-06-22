@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Only when you can be extremely pliable and soft can you be extremely hard and strong.
+> Argue for your limitations and sure enough, they're yours.
 >
-> — Zen Proverb
+> — Richard Bach
