@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Argue for your limitations and sure enough, they're yours.
+> You may be one person in this world, but to one person you may mean the world.
 >
-> — Richard Bach
+> — Unknown
