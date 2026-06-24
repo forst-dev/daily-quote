@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You may be one person in this world, but to one person you may mean the world.
+> You're on earth. There's no cure for that.
 >
-> — Unknown
+> — Samuel Beckett
