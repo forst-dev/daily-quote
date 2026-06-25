@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You're on earth. There's no cure for that.
+> The best fighter is never angry.
 >
-> — Samuel Beckett
+> — Lao Tzu
