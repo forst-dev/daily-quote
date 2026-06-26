@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The best fighter is never angry.
+> It is dangerous to be right in matters on which the established authorities are wrong.
 >
-> — Lao Tzu
+> — Voltaire
