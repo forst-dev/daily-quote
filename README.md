@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It is dangerous to be right in matters on which the established authorities are wrong.
+> Do Something. If it works, do more of it. If it doesn't, do something else.
 >
-> — Voltaire
+> — Franklin D. Roosevelt
