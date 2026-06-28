@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Do Something. If it works, do more of it. If it doesn't, do something else.
+> Truth is the offspring of silence and meditation.
 >
-> — Franklin D. Roosevelt
+> — Isaac Newton
