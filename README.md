@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Truth is the offspring of silence and meditation.
+> All leaders are readers.
 >
-> — Isaac Newton
+> — Jim Rohn
