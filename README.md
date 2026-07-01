@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> To create more positive results in your life, replace 'if only' with 'next time'.
+> People who say it cannot be done should not interrupt those who are doing it.
 >
-> — Celestine Chua
+> — George Bernard Shaw
