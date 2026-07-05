@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Patience is bitter, but its fruit is sweet.
+> One of the advantages of being disorganized is that one is always having surprising discoveries.
 >
-> — Aristotle
+> — A.A. Milne
