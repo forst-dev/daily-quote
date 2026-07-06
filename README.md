@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> One of the advantages of being disorganized is that one is always having surprising discoveries.
+> Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives.
 >
-> — A.A. Milne
+> — Betty White
