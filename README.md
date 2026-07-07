@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives.
+> It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy.
 >
-> — Betty White
+> — Sun Tzu
