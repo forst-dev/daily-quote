@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy.
+> Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny.
 >
-> — Sun Tzu
+> — Steve Maraboli
