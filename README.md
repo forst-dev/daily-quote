@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny.
+> When you've got nothing, you've got nothing to lose.
 >
-> — Steve Maraboli
+> — Bob Dylan
