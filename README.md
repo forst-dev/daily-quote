@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories.
+> Success is a consequence and must not be a goal.
 >
-> — Ray Bradbury
+> — Gustave Flaubert
