@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Success is a consequence and must not be a goal.
+> Words, once they are printed, have a life of their own.
 >
-> — Gustave Flaubert
+> — Carol Burnett
