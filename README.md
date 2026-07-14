@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Words, once they are printed, have a life of their own.
+> Pain doesn't last. And when it's gone, we have something to show for it. Growth.
 >
-> — Carol Burnett
+> — Kamal Ravikant
