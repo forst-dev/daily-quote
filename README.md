@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Pain doesn't last. And when it's gone, we have something to show for it. Growth.
+> There's no next time. It's now or never.
 >
-> — Kamal Ravikant
+> — Celestine Chua
