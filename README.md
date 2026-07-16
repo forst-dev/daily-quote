@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> There's no next time. It's now or never.
+> Knowing others is wisdom, knowing yourself is enlightenment.
 >
-> — Celestine Chua
+> — Lao Tzu
