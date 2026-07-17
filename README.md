@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Knowing others is wisdom, knowing yourself is enlightenment.
+> Death and life have their determined appointments; riches and honors depend upon heaven.
 >
-> — Lao Tzu
+> — Confucius
