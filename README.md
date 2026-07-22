@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Do Something. If it works, do more of it. If it doesn't, do something else.
+> Nothing makes a man broad-minded like adversity.
 >
-> — Franklin D. Roosevelt
+> — Will Rogers
