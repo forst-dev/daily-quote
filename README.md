@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Nothing makes a man broad-minded like adversity.
+> You have the potential for greatness.
 >
-> — Will Rogers
+> — Steve Harvey
