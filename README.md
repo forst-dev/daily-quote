@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You have the potential for greatness.
+> Change is hard at first, messy in the middle and gorgeous at the end.
 >
-> — Steve Harvey
+> — Robin Sharma
