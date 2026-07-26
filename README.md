@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It is amazing what you can accomplish if you do not care who gets the credit.
+> Let us rather run the risk of wearing out than rusting out.
 >
-> — Harry S. Truman
+> — Theodore Roosevelt
