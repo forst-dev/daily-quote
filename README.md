@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Let us rather run the risk of wearing out than rusting out.
+> But better die than live mechanically a life that is a repetition of repetitions.
 >
-> — Theodore Roosevelt
+> — D. H. Lawrence
