@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> But better die than live mechanically a life that is a repetition of repetitions.
+> Be kind, for everyone you meet is fighting a harder battle.
 >
-> — D. H. Lawrence
+> — Plato
