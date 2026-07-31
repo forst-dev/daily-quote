@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It isn't that they can't see the solution. It is that they can't see the problem.
+> New beginnings are disguised as painful endings.
 >
-> — Gilbert Chesterton
+> — Lao Tzu
