@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> New beginnings are disguised as painful endings.
+> Expect the best of yourself, and then do what is necessary to make it a reality.
 >
-> — Lao Tzu
+> — Ralph Marston
