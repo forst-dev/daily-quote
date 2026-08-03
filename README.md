@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present.
+> It all depends on what you choose to believe.
 >
-> — Joan Rivers
+> — Spencer Johnson
