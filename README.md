@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It all depends on what you choose to believe.
+> Love never keeps a man from pursuing his destiny.
 >
-> — Spencer Johnson
+> — Paulo Coelho
