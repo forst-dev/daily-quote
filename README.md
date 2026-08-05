@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Love never keeps a man from pursuing his destiny.
+> It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 >
-> — Paulo Coelho
+> — Epictetus
