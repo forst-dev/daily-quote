@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
+> Talk sense to a fool and he calls you foolish.
 >
-> — Epictetus
+> — Euripides
