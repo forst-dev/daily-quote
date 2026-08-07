@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Talk sense to a fool and he calls you foolish.
+> Ability is a poor man's wealth.
 >
-> — Euripides
+> — John Wooden
