@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Ability is a poor man's wealth.
+> The greatest discovery of all time is that a person can change their future by merely changing their attitude.
 >
-> — John Wooden
+> — Oprah Winfrey
