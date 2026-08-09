@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The greatest discovery of all time is that a person can change their future by merely changing their attitude.
+> Magic is believing in yourself, if you can do that, you can make anything happen.
 >
-> — Oprah Winfrey
+> — Johann Wolfgang von Goethe
