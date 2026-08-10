@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Magic is believing in yourself, if you can do that, you can make anything happen.
+> Correct what you can. Learn from what you can't.
 >
-> — Johann Wolfgang von Goethe
+> — Toni Morrison
