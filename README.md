@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Still your waters.
+> Sadness is but a wall between two gardens.
 >
-> — Josh Waitzkin
+> — Kahlil Gibran
