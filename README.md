@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Sadness is but a wall between two gardens.
+> Keep your face to the sunshine and you cannot see the shadows.
 >
-> — Kahlil Gibran
+> — Helen Keller
