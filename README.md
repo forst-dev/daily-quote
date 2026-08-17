@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Motivation is what gets you started. Habit is what keeps you going.
+> Your happiness is what truly matters most. Do what you have to do in order to be happy.
 >
-> — Jim Rohn
+> — Brian Tracy
