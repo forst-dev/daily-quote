@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Your happiness is what truly matters most. Do what you have to do in order to be happy.
+> No one can compete with you on being you. Most of life is a search for who and what needs you the most.
 >
-> — Brian Tracy
+> — Naval Ravikant
