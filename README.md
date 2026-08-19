@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> No one can compete with you on being you. Most of life is a search for who and what needs you the most.
+> Why change? Everyone has his own style. When you have found it, you should stick to it.
 >
-> — Naval Ravikant
+> — Audrey Hepburn
