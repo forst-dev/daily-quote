@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Why change? Everyone has his own style. When you have found it, you should stick to it.
+> No matter how tall the mountain is, it cannot block the sun.
 >
-> — Audrey Hepburn
+> — Chinese Proverb
