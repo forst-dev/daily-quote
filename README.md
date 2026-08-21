@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> No matter how tall the mountain is, it cannot block the sun.
+> Listen to the secret sound, the real sound, which is inside you.
 >
-> — Chinese Proverb
+> — Kabir
