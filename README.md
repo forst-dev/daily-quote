@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
+> The biggest adventure you can ever take is to live the life of your dreams.
 >
-> — Nikola Tesla
+> — Oprah Winfrey
