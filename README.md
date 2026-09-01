@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> To a mind that is still, the entire universe surrenders.
+> Stop wasting time defending your problems and work on addressing them instead.
 >
-> — Zhuangzi
+> — Celestine Chua
