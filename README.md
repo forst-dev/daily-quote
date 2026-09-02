@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Stop wasting time defending your problems and work on addressing them instead.
+> Force has no place where there is need of skill.
 >
-> — Celestine Chua
+> — Herodotus
