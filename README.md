@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Do good by stealth, and blush to find it fame.
+> However difficult life may seem, there is always something you can do and succeed at.
 >
-> — Alexander Pope
+> — Stephen Hawking
