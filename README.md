@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> We are all like the bright moon, we still have our darker side.
+> Simple words, repeated daily, can change your life.
 >
-> — Kahlil Gibran
+> — Maxime Lagace
