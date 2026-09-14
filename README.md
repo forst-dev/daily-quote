@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Everyday is a second chance.
+> If you spend too much time thinking about a thing, you'll never get it done.
 >
-> — Unknown
+> — Bruce Lee
