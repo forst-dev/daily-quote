@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> If you spend too much time thinking about a thing, you'll never get it done.
+> Knowing yourself is the beginning of all wisdom.
 >
-> — Bruce Lee
+> — Aristotle
