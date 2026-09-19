@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Till it has loved, no man or woman can become itself.
+> Make your mind your own business.
 >
-> — Emily Dickinson
+> — Jack Butcher
