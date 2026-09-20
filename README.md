@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Make your mind your own business.
+> A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road.
 >
-> — Jack Butcher
+> — Henry Ward Beecher
