@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You are what you believe in. You become that which you believe you can become.
+> Give so much away people insist on paying you.
 >
-> — Bhagavad Gita
+> — Jack Butcher
