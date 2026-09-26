@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Give so much away people insist on paying you.
+> If you get up one more time than you fall, you will make it through.
 >
-> — Jack Butcher
+> — Chinese Proverb
