@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> If you get up one more time than you fall, you will make it through.
+> Don't let your learning lead to knowledge. Let your learning lead to action.
 >
-> — Chinese Proverb
+> — Jim Rohn
