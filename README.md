@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Don't let your learning lead to knowledge. Let your learning lead to action.
+> One mistake does not have to rule a person's entire life.
 >
-> — Jim Rohn
+> — Joyce Meyer
