@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> One mistake does not have to rule a person's entire life.
+> Silence is a source of great strength.
 >
-> — Joyce Meyer
+> — Lao Tzu
