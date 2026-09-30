@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Silence is a source of great strength.
+> If you've made a mistake, it's better just to laugh at it.
 >
-> — Lao Tzu
+> — Zen Proverb
