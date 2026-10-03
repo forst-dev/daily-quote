@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear.
+> We are born from a quiet sleep, and we die to a calm awakening
 >
-> — Nelson Mandela
+> — Zhuangzi
