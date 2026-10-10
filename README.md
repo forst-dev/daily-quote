@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.
+> Ability is a poor man's wealth.
 >
-> — Ray Bradbury
+> — John Wooden
