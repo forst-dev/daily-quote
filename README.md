@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Ability is a poor man's wealth.
+> You only live once, but if you do it right, once is enough.
 >
-> — John Wooden
+> — Mae West
