@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Those who know, do. Those that understand, teach.
+> Life can be the scariest and most beautiful thing simultaneously.
 >
-> — Aristotle
+> — Maxime Lagace
