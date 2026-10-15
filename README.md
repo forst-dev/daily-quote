@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Genius is one percent inspiration and ninety-nine percent perspiration.
+> Everything eaten is killed. Every meal is a sacrifice.
 >
-> — Thomas Edison
+> — Adi Da Samraj
