@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Everything eaten is killed. Every meal is a sacrifice.
+> As we first succeed, we will find ourselves in new situations, facing new problems.
 >
-> — Adi Da Samraj
+> — Ryan Holiday
