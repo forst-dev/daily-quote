@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> As we first succeed, we will find ourselves in new situations, facing new problems.
+> You've got to get up every morning with determination if you're going to go to bed with satisfaction.
 >
-> — Ryan Holiday
+> — George Lorimer
