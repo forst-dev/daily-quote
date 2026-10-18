@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You've got to get up every morning with determination if you're going to go to bed with satisfaction.
+> The greater the impact you want to make, the greater your influence needs to be.
 >
-> — George Lorimer
+> — Lolly Daskal
