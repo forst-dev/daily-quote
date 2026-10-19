@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The greater the impact you want to make, the greater your influence needs to be.
+> The secret of change is to focus all your energy not on fighting the old, but on building the new.
 >
-> — Lolly Daskal
+> — Colin R. Davis
