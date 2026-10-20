@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The secret of change is to focus all your energy not on fighting the old, but on building the new.
+> Success is about doing the right thing, not about doing everything right.
 >
-> — Colin R. Davis
+> — Gary Keller
