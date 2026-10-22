@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Each day your life grows a day shorter. Make every move count.
+> The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one.
 >
-> — Ming-Dao Deng
+> — Mark Twain
