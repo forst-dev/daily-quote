@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> If someone betrays you once, it's their fault; if they betray you twice, it's your fault.
+> There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world.
 >
-> — Eleanor Roosevelt
+> — Henry Ward Beecher
