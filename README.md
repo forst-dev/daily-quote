@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The wiser you get, the less you care to look like a fool.
+> Loving thoughts and actions are clearly beneficial for our physical and mental health.
 >
-> — Maxime Lagace
+> — Dalai Lama
