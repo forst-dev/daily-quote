@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> What we dwell on is who we become.
+> The more reasons you have for achieving your goal, the more determined you will become.
 >
-> — Oprah Winfrey
+> — Brian Tracy
