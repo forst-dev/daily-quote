@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Distant water does not put out a nearby fire.
+> When you believe in a thing, believe in it all the way, implicitly and unquestionable.
 >
-> — Chinese Proverb
+> — Walt Disney
