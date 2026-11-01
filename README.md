@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> When you believe in a thing, believe in it all the way, implicitly and unquestionable.
+> When something comes from within, when it is a part of you, you have no choice but to live it, to express it.
 >
-> — Walt Disney
+> — Kamal Ravikant
