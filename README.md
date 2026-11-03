@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> If you want others to be happy, practice compassion. If you want to be happy, practice compassion.
+> When the time is gone, you can never get it back.
 >
-> — Dalai Lama
+> — Stephen King
