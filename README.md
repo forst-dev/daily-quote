@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> When the time is gone, you can never get it back.
+> What the eye doesn't see and the mind doesn't know, doesn't exist.
 >
-> — Stephen King
+> — D. H. Lawrence
