@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Debt is the slavery of the free.
+> Your mind is infinite, it's your doubts that are limiting.
 >
-> — Publilius Syrus
+> — Robert Kiyosaki
