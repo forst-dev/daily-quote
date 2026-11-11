@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward.
+> A random act of kindness, no matter how small, can make a tremendous impact on someone else's life.
 >
-> — Colin Powell
+> — Roy T. Bennett
