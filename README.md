@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> A random act of kindness, no matter how small, can make a tremendous impact on someone else's life.
+> In the practice of tolerance, one's enemy is the best teacher.
 >
-> — Roy T. Bennett
+> — Dalai Lama
