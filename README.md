@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question.
+> There is nothing more frightful than ignorance in action.
 >
-> — John Tukey
+> — Johann Wolfgang von Goethe
