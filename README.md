@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> There is nothing more frightful than ignorance in action.
+> The weak can never forgive. Forgiveness is the attribute of the strong.
 >
-> — Johann Wolfgang von Goethe
+> — Mahatma Gandhi
