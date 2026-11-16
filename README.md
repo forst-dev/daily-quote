@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The weak can never forgive. Forgiveness is the attribute of the strong.
+> I dream my painting and I paint my dream.
 >
-> — Mahatma Gandhi
+> — Vincent van Gogh
