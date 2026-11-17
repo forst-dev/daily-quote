@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> I dream my painting and I paint my dream.
+> If you can't argue both sides, you can't argue.
 >
-> — Vincent van Gogh
+> — Jack Butcher
