@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> If you can't argue both sides, you can't argue.
+> Silence is a source of great strength.
 >
-> — Jack Butcher
+> — Lao Tzu
