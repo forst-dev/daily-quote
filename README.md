@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Silence is a source of great strength.
+> You are never too old to become younger.
 >
-> — Lao Tzu
+> — Mae West
