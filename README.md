@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> You are never too old to become younger.
+> Never waste a minute of your precious life thinking about people you don't like.
 >
-> — Mae West
+> — Celestine Chua
