@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> To avoid criticism, do nothing, say nothing, and be nothing.
+> Peace is not the absence of conflict, but the ability to cope with it.
 >
-> — Elbert Hubbard
+> — Unknown
