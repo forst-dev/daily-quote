@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Have a vision. Be demanding.
+> The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way.
 >
-> — Colin Powell
+> — Robert Kiyosaki
