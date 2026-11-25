@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way.
+> We have to live life with a sense of urgency so not a minute is wasted.
 >
-> — Robert Kiyosaki
+> — Les Brown
