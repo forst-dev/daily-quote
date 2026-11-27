@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> Keep your eyes on the stars, but remember to keep your feet on the ground.
+> It takes half your life before you discover life is a do-it-yourself project.
 >
-> — Theodore Roosevelt
+> — Napoleon Hill
