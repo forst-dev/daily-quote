@@ -1,4 +1,4 @@
 ## 🌅 오늘의 명언
-> It takes half your life before you discover life is a do-it-yourself project.
+> High thoughts must have high language.
 >
-> — Napoleon Hill
+> — Aristophanes
